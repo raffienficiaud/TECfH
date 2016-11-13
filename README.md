@@ -23,3 +23,25 @@ The Europe promotes the improvement of the health and environment in all possibl
 ## All European Citizens are equal regarding their social rights (within Europe)
 
 No distinction of any kind regarding the social care can be made for any European Citizen, especially based on their citizenship or their geographic residence within Europe.
+
+## European Citizens speak different languages and are from different culture. Their identity is of primary importance.
+
+Each member state can act to develop multilingual and multicultural exchanges within Europe, in the respect of the Countries identities and historical legacy. 
+
+## All European Citizens have the right to understand and participate to the evolution of the European Union. The duty of the European Union and its Member States to establish referendum with high participation
+
+The texts that direct any agreements or evolution of any nature should be named, public, clear, short
+and understandable by all European Citizens. This also states that all agreements and/or evolution
+should be written in each dominant language of each Member State.
+
+Any side effect led by a potential misinterpretation of the written text will be in favour of the
+European Union and its Citizens if it is affected by an international agreement. If this
+misunderstanding is rooted in the associated notions of different dominant languages, then the
+European Citizens will benefit from the most favorable interpretation.
+
+Every important action that impacts directly or indirectly European Citizens, whether this impact is on the environmental, economical, social, cultural,
+educational or any other political domain, should be decided, discussed and voted by the European Citizens first.
+
+-
+- announced as clearly as possible, 1 year in advance. Every country has the duty to indicate
+-
